@@ -6,3 +6,5 @@ it will take time to update may be next 20 years
 
 no body can tell exact time but feature is quantum computing.
 
+in future some updated tachnologies are coming like blockchain,ai Etc.
+
