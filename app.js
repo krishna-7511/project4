@@ -8,3 +8,6 @@ no body can tell exact time but feature is quantum computing.
 
 in future some updated tachnologies are coming like blockchain,ai Etc.
 
+yes you are correct.
+
+thank you for your valuable conservation.
